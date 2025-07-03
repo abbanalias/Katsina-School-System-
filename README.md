@@ -1,1 +1,1 @@
-# Katsina-School-System-
+# Katsina-primary-Schools
